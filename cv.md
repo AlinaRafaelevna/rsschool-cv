@@ -1,2 +1,1 @@
-**CV**
-*Alina Rafaelevna*
+**Alina Rafaelevna**
